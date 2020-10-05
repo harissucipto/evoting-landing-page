@@ -31,3 +31,5 @@ https://github.com/harissucipto/evoting-landing-page
 ```
 
 lalu klik merge request di halaman githubnya lalu confirm sendiri
+
+Selamat berjuang ...

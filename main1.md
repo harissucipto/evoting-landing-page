@@ -1,0 +1,3 @@
+Artikel eksplanatif (penjelasan) adalah suatu artikel yang di dalamnya mengkaji, memaparkan atau menjabarkan tentang suatu masalah yang ada. Penjabaran yang dilakukan tak hanya secara umum, namun penjabaran dijabarkan secara gamblang, jelas dan detail. Isi dari artikel lebih besar menampilkan pendapat atau sudut pandang si penulis mengenai topik yang telah dipilih.
+
+Berikut ini adalah contoh artikel yang baik dan benar. Mulai dari contoh artikel di koran, contoh artikel pendidikan, contoh artikel ilmiah, contoh artikel kesehatan, contoh artikel singkat, contoh artikel panjang, contoh artikel adiwiyata, contoh artikel ekonomi, contoh artikel lingkungan hidup, contoh artikel pemanasan global, contoh artikel tentang narkoba, contoh artikel sekolah, dll.
